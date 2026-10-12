@@ -1,0 +1,1 @@
+[42324043_Tugas WEEK 1 SESI 2](https://github.com/Shophia-Melisa/CERTAN/commit/f555dfe7ca15725c2b3e1b68d13879c5895bc203 "42324043_Tugas WEEK 1 SESI 2")
